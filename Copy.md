@@ -1,3 +1,3 @@
 # study01
 
-Toi la Phuong
+Toi la Thuy Phuong
